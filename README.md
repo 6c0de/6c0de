@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @6c0de
+- 👀 I’m interested in cybersecurity and programming.
+- 🌱 I’m currently learning Python and German.
+- 💞️ I’m looking to collaborate on the community projects that I think I am eligable to help on.
+- 📫 How to reach me? Leave a mail on m4demird@gmail.com.
+- 😄 Pronouns: he/coder
